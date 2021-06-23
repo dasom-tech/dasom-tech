@@ -1,6 +1,6 @@
 - ## :information_desk_person: About me
     
-    Hello. I'm into studying computer programming from last July. I don't have experience in this field. but, I want to carve out a career as a project manager in the future.
+    Hello. I'm into studying for computer programming from July 2020. I want to carve out a career as a project manager in the future. I'll try hard for my future and enjoy my life.😄
 
 - ## :speech_balloon:Languages and Tools
 
